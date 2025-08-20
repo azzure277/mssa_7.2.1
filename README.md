@@ -2,3 +2,6 @@
 
 
 ![7 2 2](https://github.com/user-attachments/assets/79d8357d-db13-4c41-9404-1373b77cc292)
+
+
+![mssa_7 2 3](https://github.com/user-attachments/assets/90b8ed2a-1077-4714-b02d-3fec875f64c3)
